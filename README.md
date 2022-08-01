@@ -1,2 +1,2 @@
 Resultado final 
-LANDINGPAGE- ![print do ballarini](https://user-images.githubusercontent.com/104920494/170411940-6cbc3c71-a9b2-4343-9f69-c219e40e9775.png)
+![landatualizada](https://user-images.githubusercontent.com/104920494/182202501-a091cf44-5ead-49cf-9c11-b817b5f1efd7.png)
